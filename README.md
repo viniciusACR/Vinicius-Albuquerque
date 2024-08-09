@@ -7,7 +7,7 @@
 
 - 📫 Você me acha através do e-mail **vinicius.albuquer@outlook.com**
 
-- 📄 Fui fundada por Vinicius Albuquerque segue habilidades no linkedin ["linkedin.com/in/vinicius-albuquerque-acr"](linkedin.com/in/vinicius-albuquerque-acr)
+- 📄 Fundada por Vinicius Albuquerque segue habilidades no linkedin ["linkedin.com/in/vinicius-albuquerque-acr"](linkedin.com/in/vinicius-albuquerque-acr)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
